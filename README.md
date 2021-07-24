@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aluy-ab
+- 👀 I’m a computer science student
+- 🌱 I’m keeping track of my codes in here
+- 📫 So they are all in private haha
